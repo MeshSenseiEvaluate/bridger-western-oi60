@@ -1,4 +1,4 @@
-# 
+# Experience bridger western like never before with bridger western Script rare, the #1 Script. Includes private server access and auto-heal for
 
 
 
